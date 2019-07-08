@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Aloha! Welcome to my personal website!
 
-I'm glad you are here. I plan to talk about ...
+The goal of this site is to showcase my brand and abilities. 
